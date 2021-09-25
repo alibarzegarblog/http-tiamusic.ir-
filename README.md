@@ -1,2 +1,2 @@
-# https-tiamusic.ir-
+# tiamusic.ir-
 Download music
